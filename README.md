@@ -1,2 +1,2 @@
 # week7
-Demo_week7: https://drive.google.com/drive/folders/11EUwBZckl0bR6-ZOA5YX0Pw60vAj8Na5?usp=sharing
+Demo_week7: https://drive.google.com/file/d/1Xq5k0VZEz1IrbbDezcDVnAUaqIF4Oa0r/view?usp=sharing
